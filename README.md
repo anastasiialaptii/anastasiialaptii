@@ -1,5 +1,5 @@
 ```
-Hi!! Come on in !! I hope you enjoy here 𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼
+Hi!! Come on in !! I hope you enjoy it here 𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼
 
            *     ,MMM8&&&.            *
                 MMMM88&&&&&    .
